@@ -2,4 +2,4 @@
 
 Personal website and portfolio.
 
-Visit: https://davidfreemanwriter.com
+
